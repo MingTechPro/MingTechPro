@@ -7,9 +7,6 @@
   | ------------- | ------------- |
 
 #### 访客 (2024/5/6 ~ 刚刚)
-![](https://count.getloli.com/get/@GamerNoTitle?theme=rule34)
+![](https://count.getloli.com/get/@MingTechPro?theme=rule34)
 
 </div>
-
-<p></p>
-<p></p>
